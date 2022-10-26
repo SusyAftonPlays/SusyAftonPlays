@@ -1,0 +1,6 @@
+- 👋 Hi!, I’m @SusyAftonPlays
+- 👀 I’m interested in : osu!/osu!lazer/osu!js/opsu!
+- 🌱 I’m currently learning : Coding. 
+- 💞️ I’m looking to collaborate on osu!js
+- 📫 How to contact me : Via scratch
+- My scratch acc : https://scratch.mit.edu/users/SusyAftonPlays/
